@@ -1,0 +1,1 @@
+# Analise_Data_Venda_Data_Execucao
